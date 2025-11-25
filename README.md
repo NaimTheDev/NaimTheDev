@@ -1,5 +1,5 @@
 # 💫 About Me:
-Web Developer<br>Business Oriented<br>Building Cool stuff<br>
+Web Developer<br>Business Oriented<br>Thrive on builing products, big and small<br>
 
 
 ## 🌐 Socials:
